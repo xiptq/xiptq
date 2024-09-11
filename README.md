@@ -1,16 +1,17 @@
-## Hi there 👋
+↓↓↓↓↓最新入口↓↓↓↓↓
 
-<!--
-**xiptq/xiptq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+点上方链接进入↑↑↑↑↑
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+锦晏试了一套礼服，爸爸妈妈他们看了都十分满意，但锦晏不是太喜欢，感觉有些繁琐。
+
+她不喜欢，只需一个眼神，家里人就能感觉到。
+
+于是妈妈又拿出了另一件绿色的公主裙，极简的设计，华丽的绣工，独特的风格，如梦似幻，任何人看了都会眼前一亮，心旷神怡。
+
+锦晏第一眼就认出来了，“外面这层纱是我跟外婆一起选的，她说有个很重要的人从她这里订了一套礼服，后来我还见过她在纱上面刺绣……”
+
+“外婆说的很重要的人，是我？”
+
+锦晏心里满是感动，那
